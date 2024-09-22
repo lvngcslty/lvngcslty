@@ -2,6 +2,6 @@
 - 👀 I’m interested in cars
 - 🌱 I’m currently learning devops
 - 💞️ I’m looking to collaborate on github
-- 📫 How to reach me: 9840221300
+- 📫 How to reach me: through telepathy
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i am funny
+- ⚡ Fun fact: i am god
